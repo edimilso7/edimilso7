@@ -1,15 +1,17 @@
 ###  **seja bem vindo💢🇳🇬**
 
-me chamamo: **Edimiso Bittencourt Mateus**🥇
+Meu Nome: **Edimiso Bittencourt Mateus**🥇
 
 - sou: **PALMEIRENSE**🇳🇬
 
 FÃ do **NEYMAR**⚽🧙🐐😜🤴
 
+Idade = **15**
+
+Localidade = **BEI**
 
 
-
-
+**VEIGA 23**
 
 
 
